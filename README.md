@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **coding issues you may face.**
 
-- 📫 How to reach me **shaibo.chakraborty2014@gmail.com**
+- 📫 How to reach me **xxxyyy5166@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
